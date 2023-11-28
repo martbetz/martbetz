@@ -1,1 +1,1 @@
-Nothing I could write here would be of any real interest to anyone, but you're welcome to [visit my website](https://martbetz.github.io) on Github pages or [reach out to me](https://discuss.pixls.us/u/martbetz) on the pixls.us forum.
+Nothing I could write here would be of any real interest to anyone, but you’re welcome to [visit my website](https://martbetz.github.io) on Github pages or [reach out to me](https://discuss.pixls.us/u/martbetz) on the pixls.us forum.
