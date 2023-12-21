@@ -1,1 +1,1 @@
-Hi. I’m Mart Betz. I like taking photos 📸 and messing about with computers; 💻 I also like breeding dodos,🥚walking barefoot, 👣 and juggling rainbows. 🌈
+Hi. I’m Mart Betz. I like taking photos&nbsp;📸 and messing about with computers;&nbsp;💻 I also like breeding dodos,&nbsp;🥚 walking barefoot,&nbsp;👣 and juggling rainbows.&nbsp;🌈
